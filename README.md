@@ -1,0 +1,2 @@
+# it_girls_school_projects_week6
+learning project
